@@ -10,4 +10,4 @@ Meu nome é Matheus
 
 ### entre em contato comigo por: e-mail
 
-**mc3673689@gmaail.com**
+**mc3673689@gmail.com**
